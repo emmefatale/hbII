@@ -14,5 +14,5 @@ This would make an interesting jumping board for a plotline.
 2.	 “Homo Sapiens Migrate from Africa.” Global Events: Milestone Events Throughout History. Ed. Jennifer Stock. Vol. 1: Africa. Farmington Hills, MI: Gale, 2014. 7-10. Gale Virtual Reference Library. Web. 18 Aug. 2015.
 [Link](http://go.galegroup.com.ndcproxy.mnpals.net/ps/i.do?id=GALE%7CCX3728000013&v=2.1&u=mnanorman&it=r&p=GVRL&sw=w&asid=9d610cc938f62e227d9d4bbcfd1232ab)
 3.	Leftwich, Brent. “Prehistoric Europe: Overview.” Daily Life through History. ABC-CLIO, 2015. Web. 23 Aug. 2015.
-[Link](https://dailylife2-abc-clio- com.ndcproxy.mnpals.net/Topics/Display/1945301?webSiteCode=SLN_DLTH_AC&returnToPage=%2fTopics%2fDisplay%2f1945301&token=8653675DDB1574C92188286A2EB1BD47&casError=False)
+[Link](https://dailylife2-abc-clio-com.ndcproxy.mnpals.net/Topics/Display/1945301?webSiteCode=SLN_DLTH_AC&returnToPage=%2fTopics%2fDisplay%2f1945301&token=8653675DDB1574C92188286A2EB1BD47&casError=False)
 
